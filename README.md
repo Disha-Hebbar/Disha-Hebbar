@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Disha-Hebbar
 - 👀 I’m interested in ...coding
-- 🌱 I’m currently learning ...engineering
+- 🌱 I’m currently learning ...engineering student
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...gmail
 
